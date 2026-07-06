@@ -1,4 +1,4 @@
-# 
+# Élite dydx trading bot flux de travail for Mac OS | VIP dydx trading bot flux de travail for PC Windows. Featuring API d'échange centralisé and pools de liquidité DEX — optimized for maximum performance.
 
 
 
